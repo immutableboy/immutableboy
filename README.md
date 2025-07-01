@@ -1,4 +1,4 @@
-ㅤㅤ![](https://file.garden/Z3q0Rqna_FBI9OSr/EthanTimeCapsule.png)
+ㅤ![](https://file.garden/Z3q0Rqna_FBI9OSr/sfothfirering.png)
 
 ㅤㅤ[atabook](https://blamejohn.atabook.org/)
 ㅤㅤ [rentry](https://rentry.co/john-shedletsky)
