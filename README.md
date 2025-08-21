@@ -2,4 +2,4 @@
 
 ‎ ‎ ‎‎ ㅤㅤㅤ[atabook](https://wutheringheights.atabook.org/)
 ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  [linktree](https://linktr.ee/deadrabbits)
-‎ ‎‎ ㅤㅤㅤ ‎ ‎‎ ㅤㅤㅤ‎ ‎‎ ㅤㅤㅤ[strawpage](https://selfhatred.straw.page) 
+‎ ‎‎ ㅤㅤㅤ ‎ ‎‎ ㅤㅤㅤ‎ ‎‎ ㅤㅤㅤ
