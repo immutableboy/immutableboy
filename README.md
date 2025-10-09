@@ -1,4 +1,4 @@
-ㅤ![](https://file.garden/Z3q0Rqna_FBI9OSr/sfothfirering.png)
+still need to redecorate those shit smh... 
 
 ‎ ‎ ‎‎ 
 ‎ ‎ㅤㅤㅤ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  [linktree](https://linktr.ee/hyphema)
